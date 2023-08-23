@@ -1,1 +1,1 @@
-[# startup-page](https://solomonthedesigner.github.io/startup-page/)https://solomonthedesigner.github.io/startup-page.com/
+[# startup-page](https://solomonthedesigner.github.io/startup-page/)https://solomonthedesigner.github.io/startup-page/
